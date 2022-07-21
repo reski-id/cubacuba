@@ -6,3 +6,6 @@
 3. Tambahkan variable yang dibutuhkan untuk menjalankan action pada bagian secret
 
 5. CubCub
+6. chikicuba
+7. kelaskwkwkwkw
+8. moi moi
